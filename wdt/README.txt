@@ -1,0 +1,1 @@
+Minimalist WDT Tool with ball bearings (54 & 58mm Versions) - Umikot Remix by roastandrevel on Thingiverse: https://www.thingiverse.com/thing:6449968
